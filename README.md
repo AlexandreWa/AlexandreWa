@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlexandreWa
+- 👀 I’m interested in music, data, photography
+- 🌱 I’m currently learning python, mandarin chinese and about myself (more and more)
+- 💞️ I’m looking to collaborate on similar interests, with or without computer
+- 📫 How to reach me alexandre.wauthier@pm.me">alexandre.wauthier@pm.me
